@@ -9,4 +9,4 @@ pleasures have to be repudiated and annoyances accepted. The wise man therefore 
 ction: he rejects pleasures to sec
 re other greater pleasures, or el
 se he endures 
-pains to avoid worse pains
+pains to avoid worse painsss
